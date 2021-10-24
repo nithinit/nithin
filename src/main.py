@@ -1,2 +1,3 @@
 welcome to the world of games
-welcome
+welcome to australia
+welcome to us
